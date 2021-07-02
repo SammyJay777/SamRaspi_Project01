@@ -1,4 +1,4 @@
-## TV REMOTE CODES
+## LG TV REMOTE CODES
 
  
      Power:
